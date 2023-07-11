@@ -1,0 +1,2 @@
+# yapayzeka
+staj-1
